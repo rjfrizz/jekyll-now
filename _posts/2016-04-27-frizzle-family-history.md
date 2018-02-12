@@ -12,7 +12,7 @@ When I got back to Quebec after the Christmas break, I started looking into our 
 
 Here's a bit of what I've learned...
 
-The Frizzle family moved to the Eaton/Compton area in the early 1800s. My great(x3) grandfather, Orsamus Frizzle, moved there from New Hampshire. These are some photos of Frizzle family headstones from the Sand Hill Cemetery in Compton, QC.
+The Frizzle family moved to the Eaton/Compton area in the early 1800s. My great(x3) grandfather, Orsamus Frizzle, moved there from New Hampshire. 
 
 I think that both Elvira, Randall and Benjamin are Orsamus' kids.
 
